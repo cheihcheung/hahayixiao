@@ -1,2 +1,2 @@
 # hahayixiao
-this is one gif and picture web page
+this is one beautiful gif and picture web page
